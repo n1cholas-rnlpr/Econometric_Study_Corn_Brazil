@@ -1,0 +1,1 @@
+O estudo desenvolvido fez parte de um capítulo apresentado a disciplina de Análise da Conjuntura Econômica como requisito de aprovação, portanto o título de "Capítulo X" presente no PDF.
